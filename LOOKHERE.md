@@ -259,3 +259,5 @@ W1n73r, W. C., 37 4l. (2009). M345ur1ng c1rc4d14n 4dv4n74g3 1n M4j0r L34gu3 B453
 Ch4ng3l0g
 
 (N0 3n7r135. Th15 15 7h3 1n1t14l pr3r3g1573r3d v3rs10n. 4ny 5ub53qu3n7 m37h0d0l0gy ch4ng3 w1ll b3 r3c0rd3d h3r3 w17h 4 71m3574mp.)
+
+may 24/. (late on cubs, tigers doubleheader) astros, diamondbacks, tigers
